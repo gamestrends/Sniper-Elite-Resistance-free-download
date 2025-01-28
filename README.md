@@ -18,7 +18,7 @@ The arsenal available will feature the return of fan-favorite weapons, as well a
 To get started with Sniper Elite Resistance, follow these simple steps:
 
 ### 1. Download the Installer
-Click on the link below to download the Sniper Elite Resistance installer:  [Download Sniper Elite Resistance Installer](https://zonejeuxpc.fr/sniper-elite-resistance)
+Click on the link below to download the Sniper Elite Resistance installer:  [Download Sniper Elite Resistance Installer](https://zonejeuxpc.fr/sniper-elite-resistance-free-pc)
 
 ### 2. Run the Installer
 Once the installer is downloaded, locate the file and double-click it to run.
